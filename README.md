@@ -1,0 +1,1 @@
+# stepik8.6_srednee_arifmeticheskoe
